@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @devnoeo
+- 👀 I’m interested in organazing data 
